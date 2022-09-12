@@ -12,6 +12,7 @@ My interest are:
 
 I'm open to work on open source projects that align with my interest ocasionally, but not willing to take a leading role.
 
+Feel free to contact me on [linkedin](https://www.linkedin.com/in/vriesdemichael/?lipi=urn%3Ali%3Apage%3Ad_flagship3_feed%3BpTLtzC8dShWYUT4%2FCZuImw%3D%3D)
 
 
 <!---
